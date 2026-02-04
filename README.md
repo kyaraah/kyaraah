@@ -37,6 +37,6 @@ Sou **psicóloga** formada, CRP 06/177632, e atuava utilizando a abordagem da ps
 Além disso, sou **streamer** na *Twitch*, comecei na metade de maio de 2025. Faço lives de foco *pomodoro*, *IRL*, jogando *Valorant*, *Infinity Nikki* e outros jogos. De vez em quando, faço live no *YouTube* e no *TikTok* também. Meu canal é: [kyaraah](https://www.twitch.tv/kyaraah)
 
 <p align="center">
-  <img src="https://media.licdn.com/dms/image/v2/D4D16AQGA0fRiYbtdMQ/profile-displaybackgroundimage-shrink_350_1400/B4DZtqQaFPH8Ac-/0/1767014245701?e=1769644800&v=beta&t=MQWGMXY-ThIBms5bw_Me33vOHlSz_kvP_2thK-HSKO8" alt="Banner do meu canal na Twitch">
+  <img src="https://media.licdn.com/dms/image/v2/D4D16AQGA0fRiYbtdMQ/profile-displaybackgroundimage-shrink_350_1400/B4DZtqQaFPH8Ac-/0/1767014245701?e=1772064000&v=beta&t=fJyovDYwhl8I7MwqcenJshSxmCI870fWTeW-nkc6wiE" alt="Banner do meu canal na Twitch">
 </p>
 
